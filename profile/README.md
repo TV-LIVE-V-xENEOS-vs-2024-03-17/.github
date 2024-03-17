@@ -1,4 +1,4 @@
-Vポイント×ENEOS ゴルフトーナメント放送・テレビ放送・ライブ放送・伊藤美誠vs王曼昱ライブ配信・生中継・生放送 2024年03月17日
+Vポイント×ENEOS ゴルフトーナメント放送・テレビ放送・ライブ放送・ライブ配信・生中継・生放送 2024年03月17日
 
 <strong>🔴生中継▶ [https://sports2tv.live/golftv/](https://sports2tv.live/golftv/)</strong>
 
